@@ -3,3 +3,6 @@
 
 ### [Aristia(Edit)+Trail](https://www.mediafire.com/file/fmmuq6020lb8sda/Aristia%28Edit%29+trail.osk/file)
 <img src="https://i.imgur.com/5zaagBg.jpg">
+
+### [Miku](https://www.mediafire.com/file/pb2jjjymthjtbma/Miku_16-9.osk/file)
+<img src="https://i.imgur.com/qkm9kT2.jpg">
