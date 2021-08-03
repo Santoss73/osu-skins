@@ -6,3 +6,6 @@
 
 ### [Miku](https://www.mediafire.com/file/pb2jjjymthjtbma/Miku_16-9.osk/file)
 <img src="https://i.imgur.com/qkm9kT2.jpg">
+
+### [MonkoEdit(Rektygon Skin)](https://www.mediafire.com/file/xthnviquoptb313/MonkoEdit.osk/file)
+<img src="https://i.imgur.com/ufbcmjo.jpg">
