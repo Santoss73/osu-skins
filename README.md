@@ -10,5 +10,5 @@
 ### [MonkoEdit(Rektygon Skin)](https://www.mediafire.com/file/xthnviquoptb313/MonkoEdit.osk/file)
 <img src="https://i.imgur.com/ufbcmjo.jpg">
 
-### [Mathi ensalada v1.5](https://www.mediafire.com/file/dasthizozmbr3dg/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
+### [Mathi ensalada v1.5(Yellow Cursor)](https://www.mediafire.com/file/dasthizozmbr3dg/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
 <img src="https://skins.osuck.net/uploads/posts/2019-03/1553936590_screenshot3523.jpg">
