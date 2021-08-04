@@ -18,3 +18,6 @@
 
 ### [- # WhiteCat (1.0) 『NM』 #-](https://www.mediafire.com/file/0x85j314b5oi3am/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ENM%25E3%2580%258F_%2523-.osk/file)
 <img src="https://skins.osuck.net/uploads/posts/2019-11/1573897242_6.jpg">
+
+### [404 SkinNotFound v2](https://www.mediafire.com/file/xntqi7ms52y2e61/404_SkinNotFound_v2.osk/file)
+<img src="https://skins.osuck.net/uploads/posts/2018-11/1541395297_screenshot993.jpg">
