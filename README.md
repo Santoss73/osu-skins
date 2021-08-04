@@ -12,3 +12,9 @@
 
 ### [Mathi ensalada v1.5(Yellow Cursor)](https://www.mediafire.com/file/dasthizozmbr3dg/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
 <img src="https://skins.osuck.net/uploads/posts/2019-03/1553936590_screenshot3523.jpg">
+
+### [- # WhiteCat (1.0) 『CK』 #-](https://www.mediafire.com/file/6250ar1z1jq0aes/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ECK%25E3%2580%258F_%2523-.osk/file)
+<img src="https://skins.osuck.net/uploads/posts/2019-11/1573897221_3.jpg">
+
+### [- # WhiteCat (1.0) 『NM』 #-](https://www.mediafire.com/file/0x85j314b5oi3am/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ENM%25E3%2580%258F_%2523-.osk/file)
+<img src="https://skins.osuck.net/uploads/posts/2019-11/1573897242_6.jpg">
