@@ -21,3 +21,6 @@
 
 ### [404 SkinNotFound v2](https://www.mediafire.com/file/xntqi7ms52y2e61/404_SkinNotFound_v2.osk/file)
 <img src="https://skins.osuck.net/uploads/posts/2018-11/1541395297_screenshot993.jpg">
+
+### [hvick225 2016-12-3 --Dare](https://osuskins.net/skin/y7jun5I)
+<img src="https://osuskins.net/screenshots/y7jun5I.jpg">
