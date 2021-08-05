@@ -27,3 +27,6 @@
 
 ### [-Zirba- 2017-08-10](https://osuskins.net/skin/6p457aB)
 <img src="https://osuskins.net/screenshots/6p457aB.jpg">
+
+### [FlyingTuna 2018-02-xx Rafis DT Mix v1.1](http://www.mediafire.com/file/5frr798172hcdft/FlyingTuna_2018-02-xx_Rafis_DT_Mix_v1.1.osk/file)
+<img src="https://skins.osuck.net/uploads/posts/2018-09/1537800262_2gzqrrg.jpg">
