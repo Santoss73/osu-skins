@@ -23,4 +23,6 @@
 <img src="https://skins.osuck.net/uploads/posts/2018-11/1541395297_screenshot993.jpg">
 
 ### [hvick225 2016-12-3 --Dare](https://osuskins.net/skin/y7jun5I)
-<img src="https://osuskins.net/screenshots/y7jun5I.jpg">
+<img src="https://i.ytimg.com/vi/eIk4y4oNzi0/maxresdefault.jpg">
+
+### []
