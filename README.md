@@ -33,3 +33,6 @@
 
 ### [FlyingTuna 2018-02-xx Rafis DT Mix v1.1](http://www.mediafire.com/file/5frr798172hcdft/FlyingTuna_2018-02-xx_Rafis_DT_Mix_v1.1.osk/file)
 <img src="https://skins.osuck.net/uploads/posts/2018-09/1537800262_2gzqrrg.jpg">
+
+### [Ponytail 20-Sep-2019](http://www.mediafire.com/file/9dj37csmypxes6q/Ponytail+20-Sep-2019.osk/file)
+<img src="https://skins.osuck.net/index.php?newsid=1672">
