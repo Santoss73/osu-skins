@@ -4,17 +4,14 @@
 ### [Aristia(Edit)](https://www.mediafire.com/file/wxh5t1xfa3kpncd/Aristia%28Edit%29.osk/file)
 <img src="https://skins.osuck.net/uploads/posts/2019-02/1549355517_3.jpg">
 
-### [Aristia(Edit)+Trail](https://www.mediafire.com/file/fmmuq6020lb8sda/Aristia%28Edit%29+trail.osk/file)
-<img src="https://i.imgur.com/5zaagBg.jpg">
-
 ### [Miku](https://www.mediafire.com/file/pb2jjjymthjtbma/Miku_16-9.osk/file)
 <img src="https://i.imgur.com/qkm9kT2.jpg">
 
 ### [MonkoEdit(Rektygon Skin)](https://www.mediafire.com/file/xthnviquoptb313/MonkoEdit.osk/file)
 <img src="https://i.imgur.com/ufbcmjo.jpg">
 
-### [Mathi ensalada v1.5(Yellow Cursor)](https://www.mediafire.com/file/dasthizozmbr3dg/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
-<img src="https://skins.osuck.net/uploads/posts/2019-03/1553936590_screenshot3523.jpg">
+### [Mathi 2017-08-20](https://osuskins.net/skin/GZLYayC)
+<img src="https://osuskins.net/screenshots/GZLYayC.jpg">
 
 ### [- # WhiteCat (1.0) 『CK』 #-](https://www.mediafire.com/file/6250ar1z1jq0aes/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ECK%25E3%2580%258F_%2523-.osk/file)
 <img src="https://skins.osuck.net/uploads/posts/2019-11/1573897221_3.jpg">
