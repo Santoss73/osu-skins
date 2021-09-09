@@ -24,3 +24,9 @@
 
 ### [Ponytail 20-Sep-2019](http://www.mediafire.com/file/9dj37csmypxes6q/Ponytail+20-Sep-2019.osk/file)
 <img src="https://skins.osuck.net/uploads/posts/2020-09/1601194613_screenshot9638.jpg">
+
+### [Rafis 2018-03-26 HDDT](https://www.mediafire.com/file/phcsum9n4np44wh/Rafis_2018-03-26_HDDT.osk/file)
+<img src="https://osuskins.net/screenshots/ekynLzX.jpg">
+
+### [Rafis 2018-03-26 HDDT (404 cursor)](https://www.mediafire.com/file/64cglwyw8woq364/Rafis_2018-03-26_HDDT_%2528404_cursor%2529.osk/file)
+<img src="https://skins.osuck.net/uploads/posts/2020-09/1601194193_screenshot9637.jpg">
