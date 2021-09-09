@@ -23,4 +23,4 @@
 <img src="https://i.ytimg.com/vi/eIk4y4oNzi0/maxresdefault.jpg">
 
 ### [Ponytail 20-Sep-2019](http://www.mediafire.com/file/9dj37csmypxes6q/Ponytail+20-Sep-2019.osk/file)
-<img src="https://skins.osuck.net/index.php?newsid=1672">
+<img src="https://skins.osuck.net/uploads/posts/2020-09/1601194613_screenshot9638.jpg">
