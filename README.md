@@ -30,3 +30,7 @@
 
 ### [Rafis 2018-03-26 HDDT (404 cursor)](https://www.mediafire.com/file/64cglwyw8woq364/Rafis_2018-03-26_HDDT_%2528404_cursor%2529.osk/file)
 <img src="https://skins.osuck.net/uploads/posts/2020-09/1601194193_screenshot9637.jpg">
+
+### [FlyingTuna 2018-02-xx Rafis DT Mix v1.1](http://www.mediafire.com/file/5frr798172hcdft/FlyingTuna_2018-02-xx_Rafis_DT_Mix_v1.1.osk/file)
+<img src="https://skins.osuck.net/index.php?newsid=46">
+
