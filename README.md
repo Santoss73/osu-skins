@@ -34,3 +34,5 @@
 ### [FlyingTuna 2018-02-xx Rafis DT Mix v1.1](http://www.mediafire.com/file/5frr798172hcdft/FlyingTuna_2018-02-xx_Rafis_DT_Mix_v1.1.osk/file)
 <img src="https://th.bing.com/th/id/R.c65a6d133d1d6602d3b49d8c4057ad3d?rik=jasPsDg%2b1Q6tNw&pid=ImgRaw&r=0">
 
+### [- ddddd orginal white -](https://snowy.s-ul.eu/P3P7ZzNu)
+<img src="https://osu.ppy.sh/ss/12697816">
