@@ -5,7 +5,7 @@
 <img src="https://skins.osuck.net/uploads/posts/2019-02/1549355517_3.jpg">
 
 ### [Prawilosc_vJP(Santos Edit)](https://www.mediafire.com/file/5s7nfiq3pmsaicx/Prawilosc_vJP_%2528Santos_Edit%2529.osk/file)
-<img src="">
+<img src="https://i.imgur.com/tcipSDg.jpg">
 
 ### [Miku](https://www.mediafire.com/file/pb2jjjymthjtbma/Miku_16-9.osk/file)
 <img src="https://i.imgur.com/qkm9kT2.jpg">
