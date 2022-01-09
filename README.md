@@ -4,7 +4,7 @@
 ### [Aristia(Edit)](https://www.mediafire.com/file/wxh5t1xfa3kpncd/Aristia%28Edit%29.osk/file)
 <img src="https://skins.osuck.net/uploads/posts/2019-02/1549355517_3.jpg">
 
-### [Prawilosc vJP(Santos Edit)](https://www.mediafire.com/file/5s7nfiq3pmsaicx/Prawilosc_vJP_%2528Santos_Edit%2529.osk/file)
+### [Prawilosc vJP(Santos Edit)](https://www.mediafire.com/file/s3vtmhtduwv6ank/Prawilosc_vJP%2528Santos_Edit%2529.osk/file)
 <img src="https://i.imgur.com/tcipSDg.jpg">
 
 ### [Miku](https://www.mediafire.com/file/pb2jjjymthjtbma/Miku_16-9.osk/file)
